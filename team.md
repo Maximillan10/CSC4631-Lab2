@@ -1,1 +1,1 @@
-Team information
+Team lead: Maximillan Soko
