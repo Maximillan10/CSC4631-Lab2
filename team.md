@@ -1,1 +1,1 @@
-Team Lead: Blessing Yabe
+Team Leads: Maximillan Soko & Elijah Zulu
