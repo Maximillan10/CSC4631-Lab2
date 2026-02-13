@@ -1,1 +1,1 @@
-Team lead: Phil Samakayi & Blessing Yabe
+ Team lead: Phil Samakayi & Blessing Yabe
