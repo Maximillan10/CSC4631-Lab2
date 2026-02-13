@@ -1,1 +1,1 @@
-"Team lead: Phil Samakayi" 
+Team lead: Phil Samakayi (Developer C) & Blessing Yabe (Developer D)
