@@ -1,1 +1,1 @@
-cdTeam information
+Team Leads: Maximillan Soko & Elijah Zulu
